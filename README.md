@@ -1,1 +1,2 @@
 # New-chapter
+Hello, I'm completely new to coding, I have used computers since windows 3.1, I'm not a beginner with computers just the coding. My oldest nephew has been writing code for the last 6 years or so. I have him as a support person as well as the vast community of users on this network. I'm looking forward to learning something new and innovative the could lead to a better future for myself and my family.
